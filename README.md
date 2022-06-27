@@ -1,2 +1,2 @@
 # readme.md
-yes
+discord server: https://discord.gg/sbbxjmhf
